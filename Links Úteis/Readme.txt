@@ -1,1 +1,0 @@
-Caso tenham algum material online - ou offline - que você acha que será útil para o time, coloque-os aqui.
